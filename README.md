@@ -1,4 +1,4 @@
-# ✅ "Boost Your Productivity with My To-Do List App 📝✨
+# ✅ Boost Your Productivity with My To-Do List App 📝✨
 
 Say goodbye to chaos and hello to organization! Introducing my latest to-do list app designed to help you conquer your tasks efficiently and stay on top of your goals.
 
